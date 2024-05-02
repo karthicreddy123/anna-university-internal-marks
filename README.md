@@ -1,5 +1,4 @@
 # anna university internal marks
-Here is a full article on Anna University internal marks:
 
 Anna University: Demystifying the Internal Marks System
 
